@@ -1,4 +1,4 @@
-# 
+# updated DaVinci Resolve for PC | DaVinci Resolve for Windows Panel | multi-track-editing + proxy-editing offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for
 
 
 
